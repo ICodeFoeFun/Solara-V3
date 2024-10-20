@@ -1,4 +1,7 @@
 # Solara-V3
+
+Best Executer, 100% Risk Free for getting banned
+
 Solara Executor
 Solara Executor redefines Windows exploitation with its user-friendly design and advanced features. Developed by expert reverse engineers, Solara ensures a seamless gaming experience. Its impressive functions simplify script management. Enjoy instant updates and keyless operation, making Solara the top choice for Roblox enthusiasts.
 
